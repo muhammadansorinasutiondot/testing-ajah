@@ -1,3 +1,2 @@
 iqbal pradipta
-
-s
+azkal

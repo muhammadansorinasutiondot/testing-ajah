@@ -1,1 +1,1 @@
-s
+tidak deng
